@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **frontEnd Development**
 
-- 📫 How to reach me **onkargaikwad0809@gmail.com**
+- 📫 How to reach me **frontendonkar@gmail.com**
 
 - 📄 Know about my experiences [www.linkedin.com/in/onkar-gaikwad-290172222](www.linkedin.com/in/onkar-gaikwad-290172222)
 
